@@ -2,5 +2,4 @@
 
 > Video Demo: [Xem tại đây](https://www.tiktok.com/@dr.gifter306/video/7520990064776695047) 
 
-![image](https://github.com/user-attachments/assets/ae49c2a4-a4b7-428b-b61a-568d56455a59)
-
+![Làm Gif](https://github.com/user-attachments/assets/8a3ce102-b426-49d8-80d0-20bd754ef3db)
